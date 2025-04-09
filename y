@@ -1,3 +1,7 @@
-njddsm c m
-cnsmcsmc,msc
-mustaf h draarwesjnmd
+dslassmasma,x
+kjx,amxz,mx
+jkxmax,azx,z:wq!
+Mustaf Hasanashya Darawesh
+Talikoti-586214
+Bangalore:
+
